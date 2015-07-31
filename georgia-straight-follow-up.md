@@ -6,8 +6,7 @@ David N. Wright
 Coordinator of Research and Innovation
 research@douglascollege.ca	
 
-http://www.douglascollege.ca/programs-courses/faculties/science-technology/engineering
-http://www.douglascollege.ca/student-services/advising/academic-advising/course-planning/ut-planning-guides/career-pathways/engineering
+Pre-Engineering: (www.douglascollege.ca/engineering)
 
 Session in Sept. 17th at Anvil Centre (https://www.eventbrite.ca/edit?eid=17927486595)
 
