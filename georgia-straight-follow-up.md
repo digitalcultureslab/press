@@ -8,11 +8,9 @@ research@douglascollege.ca
 
 Pre-Engineering: (www.douglascollege.ca/engineering)
 
-Session in Sept. 17th at Anvil Centre (https://www.eventbrite.ca/edit?eid=17927486595)
+Session in Sept. 17th, 5:30pm at the New Westminster Anvil Centre (http://www.eventbrite.ca/e/building-better-boxes-in-a-culture-of-innovation-tickets-17927486595)
 
-Address and Hours of the MakerSpace
-
-Better in context quote:
+Better MakerLab "in context" quote:
 
 "The Douglas College Maker Lab is conceptualized as a space to meet like-minded individuals who want to experience, and experiment with, the latest in technological equipment. At the same time, it is a flexible meeting space that serves as a teaching space for Douglas College students, and an opportunity for community groups to meet or intermingle. Led by members of the Douglas College Digital Cultures Lab, the Maker Lab encourages thinking about the mythologies of technology. The MakerLab encourages innovation and fosters the application of emerging technological trends, particularly as they apply to entrepreneurship and skills development."
 
